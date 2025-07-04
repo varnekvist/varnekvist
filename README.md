@@ -1,4 +1,4 @@
-# 👋 Welcome to Viktor Arnekvist’s Page
+# 👋 Welcome to varnekvist’s Page
 
 ---
 
